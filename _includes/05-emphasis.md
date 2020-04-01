@@ -1,0 +1,2 @@
+- loves _tequila_
+- adores *rum*
